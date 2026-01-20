@@ -18,6 +18,7 @@ Name: Brayden Parker
 - November - **Not Recieved**
 - December - **Not Recieved**
 <br>
+<hr>
 **Payment Details** 
 <br>
 *Frequency*: Monthly
