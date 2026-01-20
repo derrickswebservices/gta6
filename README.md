@@ -5,7 +5,7 @@ Name: Brayden Parker
 **LIVE?** - **NO**
 <br>
 ## *Updates?* Monthly
-- January - **Not Recieved**
+- January - **Recieved**
 - February - **Not Recieved**
 - March - **Not Recieved**
 - April - **Not Recieved**
