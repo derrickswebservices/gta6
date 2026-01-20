@@ -4,7 +4,19 @@ Name: Brayden Parker
 <br>
 **LIVE?** - **NO**
 <br>
-*Updates?* Monthly
+## *Updates?* Monthly
+- January - **Not Recieved**
+- February - **Not Recieved**
+- March - **Not Recieved**
+- April - **Not Recieved**
+- May - **Not Recieved**
+- June - **Not Recieved**
+- July - **Not Recieved**
+- August - **Not Recieved**
+- September - **Not Recieved**
+- October - **Not Recieved**
+- November - **Not Recieved**
+- December - **Not Recieved**
 <br>
 **Payment Details** 
 <br>
